@@ -1,1 +1,1 @@
-Just a place to dump my projects ig
+Just a highschooler dumping his projects 
